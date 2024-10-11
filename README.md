@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... hooping, watching documentaries of all kinds, spending time with friends and family & traveling
 - 🌱 I’m currently learning ... to start different coding projects   
 - 💞️ I’m looking to collaborate on ... anything that will help me grow in the tech world  
-- 📫 How to reach me ... Email: antonarmstrong926@gmail.com IG: kuvutia_anton
+- 📫 How to reach me ... Email: antonarmstrong926@gmail.com IG: @kuvutia_anton
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I love to cook! Try me
 
